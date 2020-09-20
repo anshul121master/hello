@@ -7,6 +7,4 @@ I am a fast learner
 
 Practicing..
 Today is awesome
-editing
-sddd
 hello there
